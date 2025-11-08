@@ -14,7 +14,7 @@
 
 
 
-　<p align="center">[ʀᴇɴᴛʀʏ](https://rentry.co/isitreallyokay) 𖥔 [ᴀᴛᴀʙᴏᴏᴋ](https://ilowbyuu.atabook.org/)
+　<p align="center">[RENTRY](https://rentry.co/isitreallyokay) 𖥔 [ATA(BOOK)](https://ilowbyuu.atabook.org/) 𖥔 [SHARED-RENTRY](https://rentry.co/shsekiss) 𖥔 [GANG-RENTRY!!!](https://rentry.co/weakherocIass)
 
 
 
