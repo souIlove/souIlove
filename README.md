@@ -14,4 +14,4 @@ wIh 🔥
 
 
 
-　<p align="center">[ʀᴇɴᴛʀʏ](https://rentry.co/isitreallyokay) 𖥔 [ᴀᴛᴀʙᴏᴏᴋ](https://guessnowbabes.atabook.org/)
+　<p align="center">[ʀᴇɴᴛʀʏ](https://rentry.co/isitreallyokay) 𖥔 [ᴀᴛᴀʙᴏᴏᴋ](https://ilowbyuu.atabook.org/)
