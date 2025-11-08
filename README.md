@@ -3,10 +3,10 @@
 
 
 <p align="center"> 
-wIh 🔥
+ 🔥
 
 <p align="center">
-  <img src="https://files.catbox.moe/qpt43z.jpg" />
+  <img src="https://media1.tenor.com/m/njv95q8yNA0AAAAC/gold-ship-gold-ship-uma-musume.gif" alt="animated" />
 </p>
 
 
@@ -15,3 +15,8 @@ wIh 🔥
 
 
 　<p align="center">[ʀᴇɴᴛʀʏ](https://rentry.co/isitreallyokay) 𖥔 [ᴀᴛᴀʙᴏᴏᴋ](https://ilowbyuu.atabook.org/)
+
+
+
+
+
