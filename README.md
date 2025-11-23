@@ -7,7 +7,7 @@ art by me!
 
 
 <p align="center">
-  <img src="https://files.catbox.moe/pl25ec.png" />
+  <img src="https://files.catbox.moe/n9lwr2.jpg" />
 </p>
 
 
