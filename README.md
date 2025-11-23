@@ -2,12 +2,11 @@
 
 
 <p align="center">
-art by me!
-  ↓
+lafufuu
 
 
 <p align="center">
-  <img src="https://files.catbox.moe/n9lwr2.jpg" />
+  <img src="https://files.catbox.moe/0cxyv4.jpg" />
 </p>
 
 
