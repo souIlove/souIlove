@@ -1,4 +1,6 @@
-
+<p align="center">
+  <img src="https://files.catbox.moe/rxa36q.png" />
+</p>
 
 
 <p align="center">
@@ -8,6 +10,8 @@ hope u guys like my art. <3
 <p align="center">
   <img src="https://files.catbox.moe/2ae7vd.jpg" />
 </p>
+
+
 
 
 
