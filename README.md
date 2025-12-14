@@ -2,11 +2,11 @@
 
 
 <p align="center">
-lafufuu
+hope u guys like my art. <3
 
 
 <p align="center">
-  <img src="https://files.catbox.moe/0cxyv4.jpg" />
+  <img src="https://files.catbox.moe/2ae7vd.jpg" />
 </p>
 
 
