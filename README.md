@@ -4,11 +4,11 @@
 
 
 <p align="center">
-hope u guys like my art. <3
+HELP WHO IS THIS AND WHAT?? I DONT UNDERSTAND I JUST MAKE MY PONIES WITH IMAGINATION ..BUT THANK YOU FOR THIS MSSG💔💔🙁✌️ 
 
 
 <p align="center">
-  <img src="https://files.catbox.moe/2ae7vd.jpg" />
+  <img src="https://files.catbox.moe/rklx0y.png" />
 </p>
 
 
