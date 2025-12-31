@@ -1,15 +1,9 @@
-<p align="center">
-  <img src="https://files.catbox.moe/rxa36q.png" />
-</p>
-
+-----
 
 <p align="center">
-HELP WHO IS THIS AND WHAET WHY NOT TALK ABOUT OR ASK MY FRIENDS INSTEAD OF SAYING THIS IN MY TREE,I MAKE MY PONIES WITH MY IMAGINATION OR RANDOM COLORINGS LIKE BRIGHT/NORMAL/DARK/TINTED ANY TINTING APPS AND WHERS THE PROOF/EXAMPLE GIV SOME ATLEAST....BUT THANK YOU FOR THIS MSSG💔💔🙁✌️ 
+hi i lov and hate to draw! pls sign ata 
 
 
-<p align="center">
-  <img src="https://files.catbox.moe/rklx0y.png" />
-</p>
 
 
 
@@ -20,5 +14,5 @@ HELP WHO IS THIS AND WHAET WHY NOT TALK ABOUT OR ASK MY FRIENDS INSTEAD OF SAYIN
 
 　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=꒰ᐢ..ᐢ꒱&color=000000)</p>
 
-
+------
 
