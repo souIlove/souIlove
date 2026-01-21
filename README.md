@@ -11,7 +11,7 @@
 
 
 
-　<p align="center">[CALLOUT!!](https://rentry.co/calloutKiyoAdachi)‎ ‎
+　‎
 
 　<p align="center">[RENTRY](https://rentry.co/mafuyukiwi)‎ ‎ ‎ ‎‎‎ ‎ .‎ ‎ ‎ ‎‎‎ ‎ [ATABOOK](https://ilowbyuu.atabook.org/)‎‎ ‎ ‎ ‎‎‎ ‎. ‎ ‎ ‎ ‎‎‎ ‎ [STRAWPAGE](https://mizukiyamaa.straw.page/)
 
