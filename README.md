@@ -16,7 +16,7 @@
 　<p align="center">[RENTRY](https://rentry.co/mafuyukiwi)‎ ‎ ‎ ‎‎‎ ‎ .‎ ‎ ‎ ‎‎‎ ‎ [ATABOOK](https://ilowbyuu.atabook.org/)‎‎ ‎ ‎ ‎‎‎ ‎. ‎ ‎ ‎ ‎‎‎ ‎ [STRAWPAGE](https://mizukiyamaa.straw.page/)
 
  
-　<p align="center">[SHARED-RENTRY](https://rentry.co/shsekiss)‎ ‎ ‎ ‎‎‎ ‎ .‎ ‎ ‎ ‎‎‎ ‎ [GANG-RNETRY](https://rentry.co/weakherocIass)‎ ‎ ‎ ‎‎‎ ‎. ‎ ‎ ‎ ‎‎‎ ‎ [TRIO-RNETRY](https://rentry.co/trioniigo)
+　<p align="center">[SHARED-RENTRY](https://rentry.co/shsekiss)‎ ‎ ‎ ‎‎‎ ‎ .‎ ‎ ‎ ‎‎‎ ‎ [GANG-RNETRY](https://rentry.co/weakherocIass)‎ ‎ ‎ 
  
   
 
