@@ -20,8 +20,4 @@
  
 
 
--------
-　<p align="center">
-yaaalll... erh i think finding friends is already ennnough unless i wnat to... im always busy and afk alot by playin games or work ssoo dni unless friends, close-friends, party. dnt me iknow its just a pony town toxic game booping me idojt really feel, ican block u easily ;-; so wtever.
 
-  
