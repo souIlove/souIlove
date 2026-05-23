@@ -8,7 +8,8 @@
 
 　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=꒰ᐢ..ᐢ꒱&color=AA5CAD)</p>
 
-　<p align="center">[prns ♡](https://en.pronouns.page/@mafuki) ‎‎‎ ‎ .‎ ‎　[me n love ♡](https://rentry.co/sweetIoves)
+　<p align="center">[prns ♡](https://en.pronouns.page/@mafuki) ‎‎‎ ‎ .‎ ‎　[me n love ♡](https://rentry.co/sweetIoves) ‎‎‎ ‎ .‎ ‎　[drawings ♡](https://myartdump.straw.page)
+
 
 <p align="center">
   <img src="https://file.garden/aY2KYAKKkg6nubAI/Untitled879_20260507185843.png" />
